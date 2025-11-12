@@ -22,6 +22,7 @@ Please follow the rules below:
 |💸|[ResizeGenius](https://gracehuang.gumroad.com/l/resizegenius/BLACKFRIDAY25)| macOS app for Effortless Batch Resizing and Editing of Images | 40% OFF with code **BLACKFRIDAY25**|
 |💸|[Redac](https://gracehuang.gumroad.com/l/redac/BLACKFRIDAY25)| MacOS app that makes redacting text in images easier | 40% OFF with code **BLACKFRIDAY25**|
 |🤑|[ShiftApp](https://shiftapp.com/black-friday)| Staff scheduling. Build rosters, manage shifts,  notify staff. | **70%** OFF with code **BLACKFRIDAY2025**|
+|🤑|[Email Me](https://emailmeapp.net/)| The fatest way to record your thoughts. For iOS, iPadOS, macOS, watchOS, visionOS & CarPlay. |  **50%** OFF NO CODE REQUIRED |
 
 ---
 
