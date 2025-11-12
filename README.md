@@ -21,6 +21,8 @@ Please follow the rules below:
 |💸|[FaceCam](https://gracehuang.gumroad.com/l/facecam/BLACKFRIDAY25)| macOS App for Recording Face In Videos | 40% OFF with code **BLACKFRIDAY25**|
 |💸|[ResizeGenius](https://gracehuang.gumroad.com/l/resizegenius/BLACKFRIDAY25)| macOS app for Effortless Batch Resizing and Editing of Images | 40% OFF with code **BLACKFRIDAY25**|
 |💸|[Redac](https://gracehuang.gumroad.com/l/redac/BLACKFRIDAY25)| MacOS app that makes redacting text in images easier | 40% OFF with code **BLACKFRIDAY25**|
+|🤑|[ShiftApp](https://shiftapp.com/black-friday)| Staff scheduling. Build rosters, manage shifts,  notify staff. | **70%** OFF with code **BLACKFRIDAY2025**|
+
 ---
 
 # Special Request 
