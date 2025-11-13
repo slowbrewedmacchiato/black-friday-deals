@@ -23,6 +23,7 @@ Please follow the rules below:
 |💸|[Redac](https://gracehuang.gumroad.com/l/redac/BLACKFRIDAY25)| MacOS app that makes redacting text in images easier | 40% OFF with code **BLACKFRIDAY25**|
 |🤑|[ShiftApp](https://shiftapp.com/black-friday)| Staff scheduling. Build rosters, manage shifts,  notify staff. | **70%** OFF with code **BLACKFRIDAY2025**|
 |🤑|[Email Me](https://emailmeapp.net/)| The fatest way to record your thoughts. For iOS, iPadOS, macOS, watchOS, visionOS & CarPlay. |  **50%** OFF NO CODE REQUIRED |
+|💸|[LabEx](https://labex.io/learn)| Learn Linux, DevOps & Cybersecurity with Hands-on Labs |  [50% OFF for Two Years](https://labex.io/checkout?type=4&coupon=2025BF50) (Coupon: 2025BF50) and [30% OFF for One Year](https://labex.io/checkout?type=2&coupon=2025BF30) (Coupon: 2025BF30) |
 
 ---
 
